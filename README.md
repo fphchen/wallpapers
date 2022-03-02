@@ -1,4 +1,4 @@
-Personal wallpaper collections
+Wallpaper collections
 
 Credits:
 
